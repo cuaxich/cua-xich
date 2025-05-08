@@ -1,4 +1,4 @@
-# Máy cưa xích
+# Máy cưa xích - https://cuaxich.com.vn
 Nên chọn cưa xích Stihl hay Husqvarna
 cuaxich.com.vn - chuyên cung cấp các thiết bị nông cơ và dân dụng chính hãng, trong đó nổi bật nhất là các dòng cưa xích chính hãng. Với mong muốn trở thành địa chỉ tin cậy cho người tiêu dùng trong lĩnh vực nông nghiệp, lâm nghiệp và dân dụng, chúng tôi luôn không ngừng mở rộng và nâng cấp danh mục sản phẩm nhằm đáp ứng đa dạng nhu cầu sử dụng thực tế.
 Bên cạnh cưa xích – thiết bị không thể thiếu trong công việc cắt tỉa cây cối, khai thác gỗ hay chăm sóc vườn rừng – chúng tôi còn phân phối nhiều dòng máy móc tiện ích khác như: máy phát điện, đảm bảo nguồn điện dự phòng ổn định cho gia đình và sản xuất; máy phun thuốc, hỗ trợ phòng trừ sâu bệnh hiệu quả cho cây trồng; máy bơm nước phục vụ tưới tiêu và sinh hoạt; máy cắt cỏ giúp làm đẹp và giữ gìn cảnh quan xanh sạch. Tất cả đều là sản phẩm từ các thương hiệu uy tín như Honda, Elemax, Husqvarna, Stihl, Dynamo...
